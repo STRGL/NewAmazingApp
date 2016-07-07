@@ -1,4 +1,4 @@
 Amazing new app
 ===================
 
-Mini m
+Mini masdsadas
